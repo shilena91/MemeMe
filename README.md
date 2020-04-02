@@ -2,4 +2,4 @@
 
 ![](https://thumbs.gfycat.com/EvenEdibleAsianelephant-size_restricted.gif)
 
-MemeMe help you add texts to image and share it.
+MemeMe help you add texts to image and share it. You can see better quality of demo [here](https://gfycat.com/evenedibleasianelephant)
